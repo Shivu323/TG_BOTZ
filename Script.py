@@ -463,13 +463,13 @@ Your time is valuable, Stop watching ads and simply avoid the stupidity
 
 Prime Membership Progress
 
-1 month - 15 Rs
+1 month - 50 Rs
 
-3 Months – 50 RS
+3 Months – 130 RS
 
-6 months - 95 Rs
+6 months - 250 Rs
 
-12 Months - 300 Rs [1 Month Free Trial]
+12 Months - 600 Rs [1 Month Free Trial]
 
 ♛ UPI ID »»————> s-hegad@paytm
 
